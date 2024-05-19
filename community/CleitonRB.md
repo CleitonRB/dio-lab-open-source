@@ -1,6 +1,6 @@
 # Cleiton Bandeira
 
-Apaixonado pela area da tecnologia, atualmente sou estudante de programação em busca entender ainda mais sobre esse mundo incrivel e claro buscando uma oprtunidade na area
+Apaixonado pela area da tecnologia, atualmente sou estudante de programação em busca entender ainda mais sobre esse mundo incrivel e buscando uma oportunidade na area
 
 ## Social:
 
